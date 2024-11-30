@@ -27,7 +27,7 @@
 </p>
 
 <p align="center">
-<img src=https://github.com/user-attachments/assets/17091ffb-b4f6-487a-82ad-9595ce872611>
+<img src=https://files.catbox.moe/1ujzeh.jpg>
 </p>
 
 <p align="center">
@@ -35,7 +35,7 @@
 </p>
 
 <p align="center">
-𝘮𝘺 𝘯𝘢𝘮𝘦 𝘪𝘴 𝙁𝙐𝙔𝙐 𝙐𝙎𝙃𝙄𝙍𝙊𝙉𝙊
+𝘮𝘺 𝘯𝘢𝘮𝘦 𝘪𝘴 𝙏𝙎𝙐𝙂𝙄𝙉𝙊 𝙃𝘼𝙍𝙐
 </p>
 <p align="center">
 𝘣𝘶𝘵 𝘰𝘵𝘩𝘦𝘳 𝘱𝘦𝘰𝘱𝘭𝘦 𝘤𝘢𝘭𝘭 𝘮𝘦 𝙑𝙄𝙑𝙄𝘼𝙉 𝘰𝘳 𝘽𝙄𝙎𝘾𝙊
@@ -174,7 +174,7 @@
 </p>
 
 <p align="center">
-<img src=https://github.com/user-attachments/assets/ab072546-fece-4db1-a54a-1cd2c1f74442>
+<img src=https://files.catbox.moe/gp23mr.png>
 </p>
 
 <p align="center">
